@@ -12,7 +12,7 @@
 - Actively learning cutting edge technologies
 - Passionate about bringing power of AI to user's convenience
 - Open to all learning opportunities and looking forward to solving some real world challenges
-- Jack of all, master of none
+- Jack of all trades
  
 <br>
 
